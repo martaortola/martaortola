@@ -6,4 +6,5 @@ Mi portfolio 👉 https://martaortola.com/
 
 Me puedes contactar a través de 📩 hola@martaortola.com
 
-![535d9d46b916613d0f3b29ae859d4a6d](https://user-images.githubusercontent.com/107054627/172712284-fa90adc9-b8f1-4542-a79a-ae2a2a4bbd16.png)
+![1e0ab059e8c7a1b67fca58cf44c6e20f](https://user-images.githubusercontent.com/107054627/174501341-6ee4f767-2da0-44ea-9bf7-081f4be32ffa.png)
+
